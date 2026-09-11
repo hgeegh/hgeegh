@@ -6,3 +6,4 @@
 ⠀ ִ 
 
 <img src="https://github.com/user-attachments/assets/c87e5608-7905-4ac6-8c73-e96fee141003" width="100%">
+<sub><blockquote class="sidebar-quote">credits:<a href="https://www.tumblr.com/dannymans66?source=share">1</a> <a href="https://mailboxxi.tumblr.com/?source=share">2</a></sub>
